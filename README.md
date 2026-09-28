@@ -20,7 +20,7 @@
 <br />
 
  __My contacts:__\
- __tel. 8-952-205-41-80__\
+ __tel. 8-931-535-99-05__\
  __e-mail: uxanov.89@mail.ru__
 
 
